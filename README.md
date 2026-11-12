@@ -1,7 +1,5 @@
 Taman Kanak - Kanak Al Ikhlas yang berlokasi di dusun Nglempongsari, Sariharjo, Ngaglik, Sleman, Yogyakarta.
-
 Mari bergabung dengan kami di TK Al Ikhlas guna menciptakan terwujudnya peserta didik yang beriman,cerdas, berkarater, terampil, mandiri, peduli lingkungan dan berwawasan global.
-
 Dengan keunggulan :
 1. Tempat strategis dan area bermain yang luas
 2. Lingkungan pendidikan yang ramah anak
